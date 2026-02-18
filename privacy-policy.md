@@ -178,4 +178,4 @@ Updates will be reflected by revising the “Last Updated” date.
 
 If you have questions about this Privacy Policy, contact us at:
 
-support@joyquotes.app
+joybusinessbay@gmail.com
