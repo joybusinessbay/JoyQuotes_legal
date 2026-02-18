@@ -33,7 +33,7 @@ If the app crashes or behaves unexpectedly:
 
 ## Contact
 
-Email: support@joyquotes.app
+Email: joybusinessbay@gmail.com
 
 Please include:
 - Your username
